@@ -1,2 +1,2 @@
 # nctuns
-Well, i just wanna play with it and not to pay for it
+Well, i just wanna play with it, because unfortunately it is no longer available.
